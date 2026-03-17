@@ -16,3 +16,4 @@
 ## Instructions
 
 Mix ingredients in a bowl.
+Put it in the refrigerator
